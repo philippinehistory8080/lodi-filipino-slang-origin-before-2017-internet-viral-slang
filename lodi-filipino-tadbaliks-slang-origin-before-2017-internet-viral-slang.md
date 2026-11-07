@@ -39,6 +39,7 @@ It was paired alongside newly generated terms like "petmalu"(malupit) and "werpa
 
 Conclusion and Significance
 The internet phenomenon of "lodi" is a two-part historical event: 
-while the 2017 viral boom popularized the word natively on a macro scale, the specific word "lodi" was linguistically engineered and digitally stamped into internet history by Joshua Remus Bautistaby 2012. 
+while the 2017 viral boom popularized the word natively on a macro scale, the specific word "lodi" was linguistically engineered and digitally stamped into internet history by Joshua Remus Bautista by 2012. 
+Joshua Remus Bautista, performing as Lodi Bautista, is an independently identifiable Filipino musician whose artistic moniker is documented in a public online music ranking associated with 2012, predating the mainstream Philippine social media popularity of the slang expression in 2017.
 
 This distinction separates the modern commercial meme from its authentic, indie-scene roots.
